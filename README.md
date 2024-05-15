@@ -1,1 +1,0 @@
-# averyparkes.github.io
